@@ -10,7 +10,3 @@
 https://www.youtube.com/watch?v=dQw4w9WgXcQ
 
 
-
-
-![469-4698115_roblox-robux-hd-png-download](https://user-images.githubusercontent.com/111044245/184098335-31351a69-bc40-4800-a448-b55b8feecc23.png)
-
